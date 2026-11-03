@@ -236,4 +236,4 @@ Among Us 3D is offered as a complete free version, providing all features and up
 Don't miss out on the action—[download Among Us 3D for free](https://www.softyne.com/among-us-3d) and join the fun today!
 
 ---
-**Last updated:** 2026-11-02 17:42:20 UTC
+**Last updated:** 2026-11-03 00:22:03 UTC
